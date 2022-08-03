@@ -1,4 +1,4 @@
-Warunki korzystania z usługi Ostatnia aktualizacja: Sobota, 16.07.2022
+Warunki korzystania z usługi Ostatnia aktualizacja: Sobota, 03.08.2022
 
 Przedstawienie i akceptacja warunków Niniejsze Warunki świadczenia usług („Warunki”), które obejmują i niniejszym włączają („Polityka Prywatności”), są umową prawną między NessBot'em („my”, „nas”, „nasz”, „nasze") a tobą („Ty”, Twój", „Twoje). Korzystając z naszych usług, oświadczasz, że posiadasz ukończone minimum 13 lat oraz akceptujesz czytane warunki. Zastrzegamy sobie prawo, aby w dowolnym momencie i według naszego uznania, modyfikować ten dokument bez uprzedniego powiadomienia, co możemy zrobić z powodów, które obejmują między innymi przestrzeganie ze zmianami prawa lub odzwierciedlającymi zmiany w naszych usługach. O ile wyraźnie nie zaznaczono inaczej, dalsze korzystanie z Usługi po opublikowaniu przez nas modyfikacji będzie oznaczało akceptację i zgodę na te zmiany. Jeśli sprzeciwisz się zmianom, możesz przestać korzystać z naszych usług i zażądać usunięcia danych zgodnie z Polityką Prywatności.
 
